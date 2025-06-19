@@ -5,4 +5,4 @@
 
 [strawpage (wip)](https://machinedetonation.straw.page)
 
-[ibispaint x](https://ibispaint.com/artist4/2057983945473611/?type=illust&sort=new) (403 forbidden/doesn't work)
+[ibispaint x](https://ibispaint.com/artist4/2057983945473611/?type=illust&sort=new) (on hiatus)
