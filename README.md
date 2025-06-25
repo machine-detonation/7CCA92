@@ -1,6 +1,4 @@
 
-[neospring](https://neospring.org/@anova) (inactive + neo is getting shut down in 2-ish months)
-
 [pronouns.cc](https://pronouns.cc/@.RRRocketz)
 
 [strawpage (wip)](https://machinedetonation.straw.page)
