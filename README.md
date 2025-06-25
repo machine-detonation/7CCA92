@@ -1,4 +1,3 @@
-[tetratto](https://tetratto.com/@rrr0cketz) (leaving soon)
 
 [neospring](https://neospring.org/@anova) (inactive + neo is getting shut down in 2-ish months)
 
