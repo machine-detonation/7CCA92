@@ -1,6 +1,6 @@
 [Scratch](https://scratch.mit.edu/users/redzzartz/)
 
-[Pronouns.cc](https://pronouns.cc/@.RRRocketz)
+[Pronouns.cc](https://pronouns.cc/@.RRRocketz), might be outdated
 
 [straw.page](https://machinedetonation.straw.page) (wip)
 
